@@ -15,7 +15,7 @@ Idk what else can I add
 
 # RUS : 
 
-Всем привет, я Raindow0
+Всем привет, я Raindow05
 и я типо кодер
 
 ... ну и музыкант
